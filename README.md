@@ -1,7 +1,7 @@
-O Caos é invevitável, sempre ao seu lado. Bem Vindo ao Outro Lado
+*O Caos é invevitável, sempre ao seu lado. Bem Vindo ao Outro Lado*
 
 
-**Não existe Medo quando se sabe, não existe sentimento sem escolha, o Medo é impossível
+**Não existe Medo quando se sabe, não existe sentimento sem escolha, o Medo é impossível**
 
 
 - 🔭 I’m currently working on Trabalhos de Pensamento Computacional
